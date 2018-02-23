@@ -2,7 +2,7 @@
 
 [Midnight](https://open.spotify.com/user/uhitzel/playlist/0hJCWrjmpIPRxm02mniWWg)
 
-[Summer House](https://open.spotify.com/user/uhitzel/playlist/6iCAQD1aQOGlZnws0ApuLy)
+[Summer House](http://bit.ly/summerhouseplaylist)
 
 [Léon's Bistro & Bar](https://open.spotify.com/user/uhitzel/playlist/4AOwvxdtmKpU6SttToBNF2)
 
