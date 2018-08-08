@@ -10,5 +10,6 @@
 
 [Disconnect](http://bit.ly/disconnectplaylist)
 
+[La Place Café](https://open.spotify.com/user/uhitzel/playlist/1vEjQIZjuOlJN8s7ZVQMvm?si=rKYIVKNiTlq7PS5OAIbCaA)
 
-
+[Croissants & Coffee](https://open.spotify.com/user/uhitzel/playlist/5RqEJUU0iq2HmA4n4IOM7j?si=iKi9T9utT2SNRY8bfmn_Tw)
