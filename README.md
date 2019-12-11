@@ -17,3 +17,5 @@
 [News & Gossip](https://open.spotify.com/user/uhitzel/playlist/6bHaZtHe5ns0VRJTFzDu1C?si=B3feZ9ceSyGIjMnrpH0DFQ)
 
 [Dirty Martini](https://open.spotify.com/playlist/18nvHu9rJFDcYvkqjd03Zn?si=2u8pLz1uSGWXzD5UqUNumg)
+
+[Tea with Coltrane](https://open.spotify.com/playlist/7fF3zgtfYEz1jorP8eQlwI?si=g2YNODZHT0yCv6OpsTgEuA)
