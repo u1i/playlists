@@ -28,3 +28,7 @@
 [News & Gossip](https://open.spotify.com/user/uhitzel/playlist/6bHaZtHe5ns0VRJTFzDu1C?si=B3feZ9ceSyGIjMnrpH0DFQ)
 
 [Dirty Martini](https://open.spotify.com/playlist/18nvHu9rJFDcYvkqjd03Zn?si=2u8pLz1uSGWXzD5UqUNumg)
+
+## Mix
+
+[TDK B90 (80ies)](https://open.spotify.com/playlist/01fFJrnV2W3m3iSMXt7FBb?si=Vs6uO9GJTea64FuPEk2o9w)
