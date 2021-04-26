@@ -34,3 +34,5 @@
 [TDK B90 (80ies)](https://open.spotify.com/playlist/01fFJrnV2W3m3iSMXt7FBb?si=Vs6uO9GJTea64FuPEk2o9w)
 
 [Dystopia (Blade Runner)](https://open.spotify.com/playlist/2qsLdihQ2oftGDzwtFruTW?si=c248d761418b4fe8)
+
+[Daytime Cocktails](https://open.spotify.com/playlist/4nipXhN8iNBnnqDRpXcxtQ?si=8058a45f1ba54e8e)
