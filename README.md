@@ -1,6 +1,6 @@
 # playlists
 
-## Morning & Jazzy Afternoon
+## Morning & Afternoon
 
 [Croissants & Coffee](https://open.spotify.com/user/uhitzel/playlist/5RqEJUU0iq2HmA4n4IOM7j?si=iKi9T9utT2SNRY8bfmn_Tw)
 
@@ -9,6 +9,8 @@
 [Market Street Books & Cafe](https://open.spotify.com/user/uhitzel/playlist/5N0NEmXHvjopyLBtMHCaTk)
 
 [Starbucks Langsuan Road](https://open.spotify.com/playlist/6cfRNjE52x7iiuV1KrqLpn?si=2a614d000b4c4764)
+
+[Myeongdong Shopping Break](https://open.spotify.com/playlist/73581b3Q7yQQety0ZhGfJG?si=8e018ca1ecbc4544)
 
 ## By The Pool
 
