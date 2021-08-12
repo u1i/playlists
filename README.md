@@ -12,6 +12,8 @@
 
 [Myeongdong Shopping Break](https://open.spotify.com/playlist/73581b3Q7yQQety0ZhGfJG?si=8e018ca1ecbc4544)
 
+[Urban Retreat](https://open.spotify.com/playlist/5tFeim8QoYO7O9HhfNPxvW?si=abd16d3d87f14328)
+
 ## By The Pool
 
 [Summer House](http://bit.ly/summerhouseplaylist)
