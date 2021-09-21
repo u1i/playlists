@@ -42,3 +42,5 @@
 [Daytime Cocktails](https://open.spotify.com/playlist/4nipXhN8iNBnnqDRpXcxtQ?si=8058a45f1ba54e8e)
 
 [Floating (Bach Piano)](https://open.spotify.com/playlist/7gh3WUkPjMQZYy3de95325?si=f7c47cdd74c74f06)
+
+[Rooftop Lounge](https://open.spotify.com/playlist/2bnwVrbIXl5uKcKUvvEpVc?si=a1b63433d74d4a62)
