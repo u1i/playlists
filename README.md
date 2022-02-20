@@ -44,3 +44,5 @@
 [Floating (Bach Piano)](https://open.spotify.com/playlist/7gh3WUkPjMQZYy3de95325?si=f7c47cdd74c74f06)
 
 [Rooftop Lounge](https://open.spotify.com/playlist/2bnwVrbIXl5uKcKUvvEpVc?si=a1b63433d74d4a62)
+
+[Wurlitzer 1015 – Jukebox Hits](https://open.spotify.com/playlist/3zmrburpOy2YPJVQQPlJvR?si=6ed6f586921841da)
