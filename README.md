@@ -33,6 +33,8 @@
 
 [Dirty Martini](https://open.spotify.com/playlist/18nvHu9rJFDcYvkqjd03Zn?si=2u8pLz1uSGWXzD5UqUNumg)
 
+[Give Me an Oldfashioned](https://open.spotify.com/playlist/3Orr1GvdBtsdHrba6q2bFB?si=dcf97b9574444e5d)
+
 ## In The Mood For...
 
 [TDK B90 (80ies)](https://open.spotify.com/playlist/01fFJrnV2W3m3iSMXt7FBb?si=Vs6uO9GJTea64FuPEk2o9w)
