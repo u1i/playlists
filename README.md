@@ -22,6 +22,8 @@
 
 [Léon's Bistro & Bar](https://open.spotify.com/user/uhitzel/playlist/4AOwvxdtmKpU6SttToBNF2)
 
+[Rooftop Lounge](https://open.spotify.com/playlist/2bnwVrbIXl5uKcKUvvEpVc?si=a1b63433d74d4a62)
+
 [La Place Café](https://open.spotify.com/user/uhitzel/playlist/1vEjQIZjuOlJN8s7ZVQMvm?si=rKYIVKNiTlq7PS5OAIbCaA)
 
 
@@ -44,7 +46,5 @@
 [Daytime Cocktails](https://open.spotify.com/playlist/4nipXhN8iNBnnqDRpXcxtQ?si=8058a45f1ba54e8e)
 
 [Floating (Bach Piano)](https://open.spotify.com/playlist/7gh3WUkPjMQZYy3de95325?si=f7c47cdd74c74f06)
-
-[Rooftop Lounge](https://open.spotify.com/playlist/2bnwVrbIXl5uKcKUvvEpVc?si=a1b63433d74d4a62)
 
 [Wurlitzer 1015 – Jukebox Hits](https://open.spotify.com/playlist/3zmrburpOy2YPJVQQPlJvR?si=6ed6f586921841da)
