@@ -48,3 +48,5 @@
 [Floating (Bach Piano)](https://open.spotify.com/playlist/7gh3WUkPjMQZYy3de95325?si=f7c47cdd74c74f06)
 
 [Wurlitzer 1015 – Jukebox Hits](https://open.spotify.com/playlist/3zmrburpOy2YPJVQQPlJvR?si=6ed6f586921841da)
+
+[Silent Night in the City](https://open.spotify.com/playlist/0PHdOvZRA758dBPMtdYitv?si=775ac0fa46d3475e)
