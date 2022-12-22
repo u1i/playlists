@@ -50,3 +50,7 @@
 [Wurlitzer 1015 – Jukebox Hits](https://open.spotify.com/playlist/3zmrburpOy2YPJVQQPlJvR?si=6ed6f586921841da)
 
 [Silent Night in the City](https://open.spotify.com/playlist/0PHdOvZRA758dBPMtdYitv?si=775ac0fa46d3475e)
+
+[Synthwave](https://open.spotify.com/playlist/6rTeWvum8O4kI6f7RYXoJL?si=1edecf6953ed4885)
+
+[Cozy Up – Jazz for a cozy winter day](https://open.spotify.com/playlist/1cAEokmwnOu5870gZjFBky?si=8901cc2aeeda4551)
