@@ -54,3 +54,5 @@
 [Synthwave](https://open.spotify.com/playlist/6rTeWvum8O4kI6f7RYXoJL?si=1edecf6953ed4885)
 
 [Cozy Up – Jazz for a cozy winter day](https://open.spotify.com/playlist/1cAEokmwnOu5870gZjFBky?si=8901cc2aeeda4551)
+
+[Italia](https://open.spotify.com/playlist/5971HogTIvBz7BzArNRSkx?si=43953b4cd03d4ec3)
